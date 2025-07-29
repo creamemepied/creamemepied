@@ -1,4 +1,4 @@
-always on the grind.
+student for life.
 
 <h5 align="left">Connect with me:</h5>
 <p align="left">
